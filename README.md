@@ -30,7 +30,10 @@ Expert in end-to-end audio production with 8+ years of experience. I specialize 
 ---
 
 ### 🔗 Portfolio & Contact:
-- - Featured Audiobooks (Production & QA): [Listen on Web Browser]( https://app.messengerx.com/ru-RU/listen/5oHmgdMXpR7XhgCvQsmWIf?isCourse=false https://app.messengerx.com/ru-RU/listen/1W3dgSfHgO8RTQ5fAU6ha3?isCourse=true [https://messengerx.app.link/AVGyotlRmRVHpEQ6M54I](https://app.messengerx.com/be-BY/listen/3ppxcOKS73sthn2tChTJK3?isCourse=false) )
+- - Featured Audiobooks (Production & QA):
+  - https://app.messengerx.com/ru-RU/listen/5oHmgdMXpR7XhgCvQsmWIf?isCourse=false
+  - https://app.messengerx.com/ru-RU/listen/1W3dgSfHgO8RTQ5fAU6ha3?isCourse=true
+  - https://messengerx.app.link/AVGyotlRmRVHpEQ6M54I](https://app.messengerx.com/be-BY/listen/3ppxcOKS73sthn2tChTJK3?isCourse=false) 
 - Multilingual Impact: Managed content for 143 languages (Specializing in Slavic Phonetics).
 - LinkedIn: [www.linkedin.com/in/hanna-mezina-384a0a276)
 
